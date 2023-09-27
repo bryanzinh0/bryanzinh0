@@ -10,4 +10,7 @@ meu nome é bryan renan
 
 bryan.espedito.silva@escola.pr.gov.br
 
-![](https://media.tenor.com/ezKbq6NWWz4AAAAd/nanno-kitty-chicha-amatayakul.gif)
+@bryan.renan47@gmail.com
+
+
+https://media.tenor.com/ezKbq6NWWz4AAAAd/nanno-kitty-chicha-amatayakul.gif
