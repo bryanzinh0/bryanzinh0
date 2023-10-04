@@ -12,4 +12,4 @@ bryan.espedito.silva@escola.pr.gov.br
 
 @bryan.renan47@gmail.com
 
-![](https://media.tenor.com/ezKbq6NWWz4AAAAd/nanno-kitty-chicha-amatayakul.gif) 
+![](https://media.tenor.com/W7g4Ay3jTCAAAAAd/nanno.gif)
